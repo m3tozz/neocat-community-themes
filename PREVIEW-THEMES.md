@@ -17,4 +17,4 @@
 
  Ship-Theme (by hypnosiss12)
  --
-![resim](https://github.com/user-attachments/assets/0bbf79d5-a4e0-4af9-b232-82c3d188f007)
+![resim](https://github.com/user-attachments/assets/6fa464ca-37fb-4aa2-a234-8c5b9590f1a4)
